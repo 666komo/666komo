@@ -1,5 +1,5 @@
-### Hi there 👋
+### Sup Nigga
 
-- 🔭 I’m currently working on pushing my linux laptop to my maximum liking.
-- 🌱 I’m currently trying to use Dvorak KB map.
-- I am using Arch Linux, but I also VERY RARELY use Windows 11.
+- Average LinSpire user  
+- US-Dvorak enjoyer
+- Microsoft is good, Open Source is great
